@@ -1,4 +1,6 @@
-*My Own Summer*
+# My Own Summer
+
+*June 27, 2025*
 
 Summer is my least favorite season. Maybe to you, summer invokes a nice relaxing beach day when you sip out of a coconut, while simultaneously walking through a field of flowers. But to me, it has always been terrible. But to do that, I need to talk about my family. I was raised in China for 14 years. I consider it my home country, and my life was there. Since first grade, my friends and I grew up together, imprinting ourselves on each other permanently. Every summer, I would visit my father’s family in India. And they were disgusting
 
