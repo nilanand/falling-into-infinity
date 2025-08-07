@@ -1,4 +1,4 @@
-# Directionless Vector: Day One
+# Directionless Vector
 *June 7, 2025*
 
 
