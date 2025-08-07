@@ -1,3 +1,8 @@
+# The Height of Chaos
+
+*August 8, 2025*
+
+
 I’ve been reading *Blue Lock* (the manga) as of late. It’s not the best thing I’ve ever read, but it has interesting world-building, and terrible power scaling. It’s  hype, but ultimately I’d place it as a solid B-tier manga. That said, it does offer some compelling ideas about talent that I really resonate with.
 
 In *Blue Lock*, there are two kinds of footballers: "geniuses", and what the series calls "“talented learners”"—a clumsy term meant to categorize the non-geniuses. Despite the name, talented learners aren’t untalented. They’re players who perceive the game through logic and intuition. They analyze data and rationalize decisions in real time. Trivial tasks—when to pass, when to shoot, how to read the field—become second nature through repetition and acquired knowledge. These players often have high football IQ and make excellent playmakers, not because they’re born with it, but because they *learned* to see the game.
