@@ -1,5 +1,6 @@
 # Nobody said it was easy
 *November 11, 2025*
+
 Finals season is in two weeks, and I’m underprepared. I’m behind in half my classes, and my grades have slipped hard.
 
 I don’t know what went wrong. I was caught up at the beginning of the semester—that’s why this blog hasn’t been updated in a while. I was locked in on my classes, completing assignments, doing homework—and then it all stopped. It always does.
